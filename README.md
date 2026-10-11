@@ -1,2 +1,2 @@
 # ekqimodyt
-Courtney cox
+that's lame isn't it
